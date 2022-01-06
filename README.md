@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Florentyves
+- 👀 I’m interested in softwares editing and apps creation 
+- 🌱 I’m currently learning coding 
+- 💞️ I’m looking to collaborate on softwares management 
+- 📫 How to reach me Nickvinson.ec@outlook.com
